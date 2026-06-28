@@ -99,5 +99,5 @@ LinkedIn:
 www.linkedin.com/in/deepak-tomar-654954203
 
 Email:
-your-deepaktomar2904@gmail.com
+deepaktomar2904@gmail.com
 
